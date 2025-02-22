@@ -1,6 +1,3 @@
-Here is the full **Tamil Jain Prayers** collection. You can copy and print it directly for temple use.
-
----
 
 # **Tamil Jain Prayers (தமிழ் சமணப் பிரார்த்தனைகள்)**
 
