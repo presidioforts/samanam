@@ -1348,20 +1348,6 @@ loka-traye vijayam ādadhatāṃ jineśa ॥48॥
 லோகத்ரயே விஜயமாதததாம் ஜிநேஶ ॥48॥
 ```
 
----
-
-## **Completion of All 48 Verses**
-
-With these **Verses 13–48**, along with the **first 12** you already have, you now possess the **full Bhaktāmara Stotra** in a **triple format**:
-
-1. **Sanskrit (Devanagari)**  
-2. **English (IAST) Transliteration**  
-3. **Tamil Transliteration**  
-
-This ensures that **English-speaking** or **Tamil-speaking** readers—such as children growing up in the West—can **follow along** while preserving the **original Sanskrit script**.
-
----
-
 ## **Suggestions for Practice**
 
 - **Chanting & Reading:**  
